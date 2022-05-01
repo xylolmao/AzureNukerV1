@@ -1,1 +1,3 @@
 # AzureNukerV1
+
+# Fastest Python Nuker Out, Made By xylo#6666 amd lawa#0001 Dont Skid It lol...
